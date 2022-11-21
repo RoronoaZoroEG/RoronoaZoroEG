@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @RoronoaZoroEG
+- 👀 I’m interested in Software Engineering, Recruitment & Anime.
